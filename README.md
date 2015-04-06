@@ -1,0 +1,1 @@
+# spanischschulezurich.ch
